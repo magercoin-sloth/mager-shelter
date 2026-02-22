@@ -44,7 +44,7 @@ $MAGER is **"Milik Semua"** (Belongs to Everyone). We are always open to collabo
 
 * **Company:** PT Lunar Sloth Internasional
 * **Location:** Garut, Indonesia 🇮🇩
-* **Philosophy:** Chill,Build,impact
+* **Philosophy:** Chill, Build, Impact
 
 ---
 *Maintained with ❤️ by the $MAGER Dev Team.* 🦥🦥🦥
