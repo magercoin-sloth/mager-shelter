@@ -1,4 +1,4 @@
-# 🦥 $MAGER Shelter : The Sanctuary of Kindness
+# 🦥 $MAGER Shelter🏠 : The Sanctuary of Kindness
 
 > **"Slow down, give back, and grow together."**
 
