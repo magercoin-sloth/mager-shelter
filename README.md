@@ -19,7 +19,7 @@ To create a sustainable sanctuary that provides food, education, and hope—prov
 *We move at a steady pace, ensuring every day counts (Monday - Friday).*
 
 ### 🍲 Nutrition & Wellbeing
-* **Free Lunch (Prasmanan):** 120 Portions for the internal team and local children/community.
+* **Free Lunch :** 120 Portions for the internal team and local children/community.
 * **Free Dinner (Rice Box):** 70 Portions distributed in eco-friendly packaging for a clean and efficient takeaway.
 * **Routine Sedekah:** Weekly charity distributions to the local community every Friday.
 
